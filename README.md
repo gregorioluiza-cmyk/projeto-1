@@ -8,6 +8,12 @@
 
 _a culpa é nossa_
 
+- maiara
+
+- maraisa
+
+- cantora
+
 ![maiara e maraisa](https://media1.tenor.com/m/jWgwcYaldYEAAAAd/maiara-maraisa.gif)
 
 
